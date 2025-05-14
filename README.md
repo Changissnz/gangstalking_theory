@@ -36,7 +36,7 @@ confusion over values that cannot be quantified in terms of currency and the per
 distribution of currency lend way for some people to be persuaded that there is an economic decline 
 that they are a part of, yet no longer want to participate in due to their acknowledgment of the 
 economic decline. The most developed and most under-developed parts of the workforce are either put 
-out of work or experience workplace hardships during late-stage capitalism. These members then turn 
+out of work or experience greater workplace hardships during late-stage capitalism. These members then turn 
 towards social activity that may involve gangstalking, especially in campaigns that deal with the 
 concepts of "social credit" and identity politics. As with most questionable activity, financial 
 incentives cannot be immediately ruled out, especially in territories with sophisticated banking 
