@@ -26,8 +26,8 @@ or encourage those ills to metastasize into greater problems.
 Gangstalking has other correlations such as to late-stage capitalism and big security business. 
 Both of these concepts need to be elaborated on for their correlations to gangstalking to be 
 made obvious. Late-stage capitalism occurs when the population of a territory, typically that of 
-a nation-state, fails to derive profit from certain products distributed in ways that effectively 
-serve the population. These products may be sophisticated to create, requiring skills that take 
+a nation-state, fails to derive profit, distributed in ways that effectively serve the population, 
+from certain products. These products may be sophisticated to create, requiring skills that take 
 years for an individual to develop proficiency in. And the pyramidal work force experiences a 
 "spiritual decline", per se, in their work ethic and values for the fruits of their labor. Collective 
 confusion over values that cannot be quantified in terms of currency and the perceived inequality in the 
