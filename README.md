@@ -22,3 +22,26 @@ For example, paparazzi is not usually unlawful except in the extreme cases of in
 is related to vigilante activity and populist movements, both of which are started and propagated 
 due to perceived failures in official institutions, failures that some argue produce social ills 
 or encourage those ills to metastasize into greater problems. 
+
+Gangstalking has other correlations such as to late-stage capitalism and big security business. 
+Both of these concepts need to be elaborated on for their correlations to gangstalking to be 
+made obvious. Late-stage capitalism occurs when the population of a territory, typically that of 
+a nation-state, fails to derive profit from certain products distributed in ways that effectively 
+serve the population. These products may be sophisticated to create, requiring skills that take 
+years for an individual to develop proficiency in. And the pyramidal work force experiences a 
+"spiritual decline", per se, in their work ethic and values for the fruits of their labor. Collective 
+confusion over values that cannot be quantified in terms of currency and the perceived inequality in the 
+distribution of currency lend way for some people to be persuaded that there is an economic decline 
+that they are a part of, yet no longer want to participate in due to their acknowledgment of the 
+economic decline. The most developed and most under-developed parts of the workforce are either put 
+out of work or experience workplace hardships during late-stage capitalism. These members then turn 
+towards social activity that may involve gangstalking, especially in campaigns that deal with the 
+concepts of "social credit" and identity politics. On the matter of big security, gangstalking 
+certainly appears compatible with the security agenda. And because of this perceived compatibility, 
+proponents of gangstalking surely will argue that gangstalking decreases the rate of mass shootings. 
+They will state that there are more participants in the agenda of protecting the "public peace", 
+something along the lines of that, so that if there is a potential mass shooting, the perpetrator 
+will be disarmed before getting to any violent results. However, this is questionable due to the 
+antagonism that gangstalking may elicit from the targeted individual. The doubts are readily understandable 
+in cases where the gangstalkers make their presence obvious in ways that are either intimidating by posturing 
+or disingenuine through scripted acts and imitation. 
