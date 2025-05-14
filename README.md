@@ -29,7 +29,7 @@ made obvious. Late-stage capitalism occurs when the population of a territory, t
 a nation-state, fails to derive profit, distributed in ways that effectively serve the population, 
 from certain products. These products may be sophisticated to create, requiring skills that take 
 years for an individual to develop proficiency in. And the pyramidal work force experiences a 
-"spiritual decline", per se, in their work ethic and values for the fruits of their labor. Collective 
+"spiritual decline", per se, in their work ethic and values from the fruits of their labor. Collective 
 confusion over values that cannot be quantified in terms of currency and the perceived inequality in the 
 distribution of currency lend way for some people to be persuaded that there is an economic decline 
 that they are a part of, yet no longer want to participate in due to their acknowledgment of the 
