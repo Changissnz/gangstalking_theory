@@ -58,8 +58,9 @@ motive for such activity is for political fronting, instead of serving as a prec
 the targeted individual of the activity is a part of. 
 
 **The concept of gangstalking has been allocated to the realm of fringe theory, for the most part.** This 
-is only natural due to the offensive imagery of numerable people organized in some way conduct stalking on a few 
-individuals; some matters is better not mentioned, goes the wisdom. As such, proving such activity is difficult 
+is only natural due to the offensive imagery of numerable people organized in some way to conduct stalking on a few 
+individuals; some matters are better not mentioned, goes the wisdom. As such, proving such activity is difficult 
 due to the nature of cross-referencing and opposing agenda that is not conducive for collaboration. Participants 
 of gangstalking may also argue that they, themselves, are the ones that are being "stalked" by their fellow 
-participants in the activity, thus blurring the lines between offendor and defender. 
+participants in the activity, due to the constant exchanges during coordination, thus blurring the lines between 
+offendor and defender. 
