@@ -50,4 +50,7 @@ One quality of gangstalking that decreases the effectiveness of the numbers invo
 effect of privatized information. With privatized information, there is less direct access to said information. 
 The few that have direct access to said information may take the liberty to play the "game of telephone" with 
 participant members. A popular experiment on the "game of telephone" demonstrated the lack of empirical likeness 
-from one end of the messaging line to the other in a long line of lines. 
+from one end of the messaging line to the other in a long line of lines. The mobocratic command structure 
+behind gangstalking is more blunt than sharp, so a convincing conclusion on the motive for such activity is 
+for political fronting, instead of serving as a precise fix for the issues that the targeted individual of 
+the activity is a part of. 
