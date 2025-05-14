@@ -46,3 +46,8 @@ potential mass shooting, the perpetrator will be disarmed before getting to any 
 this is questionable due to the reactionary antagonism that gangstalking may elicit from the targeted 
 individual. The doubts are readily understandable in cases where the gangstalkers make their presence 
 obvious in ways that are either intimidating by posturing or disingenuine through scripted acts and imitation. 
+One quality of gangstalking that decreases the effectiveness of the numbers involved is the trickle-down 
+effect of privatized information. With privatized information, there is less direct access to said information. 
+The few that have direct access to said information may take the liberty to play the "game of telephone" with 
+participant members. A popular experiment on the "game of telephone" demonstrated the lack of empirical likeness 
+from one end of the messaging line to the other in a long line of lines. 
