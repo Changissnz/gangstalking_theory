@@ -6,11 +6,13 @@ the mix becomes so infuriated that they take it upon themselves to conduct a mas
 
 The odds of a mass shooting occurring is compounded when the perpetrator has felt a strong 
 sense of being bullied in some way, shape, or form. Bullying is a possibility in cases of 
-gangstalking. The factor of the quality of the perpetrator's support system (social, financial, 
-et cetera) is also of relevance in the events that ensued. In short, gangstalking is a contributor 
-to further anti-social behavior, and the behavior may be evidently harmful from the perspective 
-of the perpetrator when they consider aspects such as their finance and social life, both of 
-which are poor in quantity and lacking in quality. 
+gangstalking (positive adversarial treatment). The factor of the quality of the perpetrator's 
+support system (social, financial, et cetera) is also of relevance in the events that ensued. 
+In short, gangstalking is a contributor to further anti-social behavior, and the behavior may 
+be evidently harmful from the perspective of the perpetrator when they consider aspects such 
+as their finance and social life, both of which are poor in quantity and lacking in quality. 
+On the other hand, neglect and isolation (negative adversarial treatment) are also frequently 
+linked to mass shooters. 
 
 Gangstalking is argued to be a remedy for social ills. From news reports, the USA was or is 
 in the midst of a mental health crisis. An environment filled with suspicion and ad hominem 
