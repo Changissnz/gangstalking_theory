@@ -38,8 +38,10 @@ out of work or experience workplace hardships during late-stage capitalism. Thes
 towards social activity that may involve gangstalking, especially in campaigns that deal with the 
 concepts of "social credit" and identity politics. As with most questionable activity, financial 
 incentives cannot be immediately ruled out, especially in territories with sophisticated banking 
-protections. On the matter of big security, gangstalking certainly appears compatible with the security 
-agenda. And because of this perceived compatibility, proponents of gangstalking surely will argue that 
+protections. 
+
+On the matter of big security, gangstalking certainly appears compatible with the security agenda. 
+And because of this perceived compatibility, proponents of gangstalking surely will argue that 
 gangstalking decreases the rate of mass shootings. They will state that there are more participants in 
 the agenda of protecting the "public peace", something along the lines of that, so that if there is a 
 potential mass shooting, the perpetrator will be disarmed before getting to any violent results. However, 
