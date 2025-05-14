@@ -36,12 +36,13 @@ that they are a part of, yet no longer want to participate in due to their ackno
 economic decline. The most developed and most under-developed parts of the workforce are either put 
 out of work or experience workplace hardships during late-stage capitalism. These members then turn 
 towards social activity that may involve gangstalking, especially in campaigns that deal with the 
-concepts of "social credit" and identity politics. On the matter of big security, gangstalking 
-certainly appears compatible with the security agenda. And because of this perceived compatibility, 
-proponents of gangstalking surely will argue that gangstalking decreases the rate of mass shootings. 
-They will state that there are more participants in the agenda of protecting the "public peace", 
-something along the lines of that, so that if there is a potential mass shooting, the perpetrator 
-will be disarmed before getting to any violent results. However, this is questionable due to the 
-antagonism that gangstalking may elicit from the targeted individual. The doubts are readily understandable 
-in cases where the gangstalkers make their presence obvious in ways that are either intimidating by posturing 
-or disingenuine through scripted acts and imitation. 
+concepts of "social credit" and identity politics. As with most questionable activity, financial 
+incentives cannot be immediately ruled out, especially in territories with sophisticated banking 
+protections. On the matter of big security, gangstalking certainly appears compatible with the security 
+agenda. And because of this perceived compatibility, proponents of gangstalking surely will argue that 
+gangstalking decreases the rate of mass shootings. They will state that there are more participants in 
+the agenda of protecting the "public peace", something along the lines of that, so that if there is a 
+potential mass shooting, the perpetrator will be disarmed before getting to any violent results. However, 
+this is questionable due to the reactionary antagonism that gangstalking may elicit from the targeted 
+individual. The doubts are readily understandable in cases where the gangstalkers make their presence 
+obvious in ways that are either intimidating by posturing or disingenuine through scripted acts and imitation. 
