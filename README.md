@@ -25,7 +25,7 @@ is related to vigilante activity and populist movements, both of which are start
 due to perceived failures in official institutions, failures that some argue produce social ills 
 or encourage those ills to metastasize into greater problems. 
 
-Gangstalking has other correlations such as to late-stage capitalism and big security business. 
+Gangstalking has other correlations such as to late-stage capitalism and Big Security business. 
 Both of these concepts need to be elaborated on for their correlations to gangstalking to be 
 made obvious. Late-stage capitalism occurs when the population of a territory, typically that of 
 a nation-state, fails to derive profit, distributed in ways that effectively serve the population, 
@@ -42,14 +42,14 @@ concepts of "social credit" and identity politics. As with most questionable act
 incentives cannot be immediately ruled out, especially in territories with sophisticated banking 
 protections. 
 
-On the matter of big security, gangstalking certainly appears compatible with the security agenda 
+On the matter of Big Security, gangstalking certainly appears compatible with the security agenda 
 of perfect information and appropriate response. And because of this perceived compatibility, proponents 
 of gangstalking surely will argue that gangstalking decreases the rate of mass shootings. They will state 
 that there are more participants in the agenda of protecting the "public peace", something along the lines 
 of that, so that if there is a potential mass shooting, the perpetrator will be disarmed before getting to 
 any violent results. However, this is questionable due to the reactionary antagonism that gangstalking may 
 elicit from the targeted individual. The doubts are readily understandable in cases where the gangstalkers 
-make their presence obvious in ways that are either intimidating by posturing or disingenuine through scripted 
+make their presence obvious in ways that are either intimidating by posture or disingenuine through scripted 
 acts and imitation. One quality of gangstalking that decreases the effectiveness of the numbers involved is 
 the trickle-down effect of privatized information. With privatized information, there is less direct access 
 to said information. The few that have direct access to said information may take the liberty to play the 
@@ -60,7 +60,7 @@ motive for such activity is for political fronting, instead of serving as a prec
 the targeted individual of the activity is a part of. 
 
 <ins>The concept of gangstalking has been allocated to the realm of fringe theory, for the most part.</ins> This 
-is only natural due to the offensive imagery of numerable people organized in some way to conduct stalking on a few 
+is only natural due to the offensive imagery of numerous people organized in some way to conduct stalking on a few 
 individuals; some matters are better not mentioned, goes the wisdom. As such, proving such activity is difficult 
 due to the nature of cross-referencing and opposing agenda that is not conducive for collaboration. Participants 
 of gangstalking may also argue that they, themselves, are the ones that are being "stalked" by their fellow 
