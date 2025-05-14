@@ -40,19 +40,19 @@ concepts of "social credit" and identity politics. As with most questionable act
 incentives cannot be immediately ruled out, especially in territories with sophisticated banking 
 protections. 
 
-On the matter of big security, gangstalking certainly appears compatible with the security agenda. 
-And because of this perceived compatibility, proponents of gangstalking surely will argue that 
-gangstalking decreases the rate of mass shootings. They will state that there are more participants in 
-the agenda of protecting the "public peace", something along the lines of that, so that if there is a 
-potential mass shooting, the perpetrator will be disarmed before getting to any violent results. However, 
-this is questionable due to the reactionary antagonism that gangstalking may elicit from the targeted 
-individual. The doubts are readily understandable in cases where the gangstalkers make their presence 
-obvious in ways that are either intimidating by posturing or disingenuine through scripted acts and imitation. 
-One quality of gangstalking that decreases the effectiveness of the numbers involved is the trickle-down 
-effect of privatized information. With privatized information, there is less direct access to said information. 
-The few that have direct access to said information may take the liberty to play the "game of telephone" with 
-participant members. A popular experiment on the "game of telephone" demonstrated the lack of empirical likeness 
-from one end of the messaging line to the other in a long line of lines. The mobocratic command structure 
-behind gangstalking is more blunt than sharp, so a convincing conclusion on the motive for such activity is 
-for political fronting, instead of serving as a precise fix for the issues that the targeted individual of 
-the activity is a part of. 
+On the matter of big security, gangstalking certainly appears compatible with the security agenda 
+of perfect information and appropriate response. And because of this perceived compatibility, proponents 
+of gangstalking surely will argue that gangstalking decreases the rate of mass shootings. They will state 
+that there are more participants in the agenda of protecting the "public peace", something along the lines 
+of that, so that if there is a potential mass shooting, the perpetrator will be disarmed before getting to 
+any violent results. However, this is questionable due to the reactionary antagonism that gangstalking may 
+elicit from the targeted individual. The doubts are readily understandable in cases where the gangstalkers 
+make their presence obvious in ways that are either intimidating by posturing or disingenuine through scripted 
+acts and imitation. One quality of gangstalking that decreases the effectiveness of the numbers involved is 
+the trickle-down effect of privatized information. With privatized information, there is less direct access 
+to said information. The few that have direct access to said information may take the liberty to play the 
+"game of telephone" with participant members. A popular experiment on the "game of telephone" demonstrated 
+the lack of empirical likeness from one end of the messaging line to the other in a long line of lines. The 
+mobocratic command structure behind gangstalking is more blunt than sharp, so a convincing conclusion on the 
+motive for such activity is for political fronting, instead of serving as a precise fix for the issues that 
+the targeted individual of the activity is a part of. 
