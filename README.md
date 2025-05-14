@@ -57,7 +57,7 @@ mobocratic command structure behind gangstalking is more blunt than sharp, so a 
 motive for such activity is for political fronting, instead of serving as a precise fix for the issues that 
 the targeted individual of the activity is a part of. 
 
-<ul>The concept of gangstalking has been allocated to the realm of fringe theory, for the most part.</ul> This 
+<ins>The concept of gangstalking has been allocated to the realm of fringe theory, for the most part.</ins> This 
 is only natural due to the offensive imagery of numerable people organized in some way to conduct stalking on a few 
 individuals; some matters are better not mentioned, goes the wisdom. As such, proving such activity is difficult 
 due to the nature of cross-referencing and opposing agenda that is not conducive for collaboration. Participants 
